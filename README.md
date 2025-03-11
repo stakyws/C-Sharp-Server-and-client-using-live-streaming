@@ -11,6 +11,6 @@ All rights reserved to:
 
 Telegram: https://t.me/Stakyws
 
-Instagrame: @Stakyus1
+Instagrame: @stakyus1
 
 Whatsapp: +967780721071
